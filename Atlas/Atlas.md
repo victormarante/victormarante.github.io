@@ -1,6 +1,6 @@
 # Introduction
 
-Information about Atlas progression
+Information about Atlas progression. The steps/guide below is a transcript taken from Youtube channel _sirgog_ (https://www.youtube.com/watch?v=iib46Gsf3fk&t=1977s). Huge thanks to him for the lovely video/transcript of how to progress the Atlas
 
 # Atlas progression
 
